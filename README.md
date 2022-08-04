@@ -1,0 +1,5 @@
+- 👋 Olá, me chamo Wagner!
+- 📚 Estudante de ADS - UNICESUMAR - 1/6
+- 🔭 Atualmente estou trabalhando na area da logista 
+- 📫 Como entrar em contato comigo: wagnerlara18@gmail.com
+- ⚡ Curiosidade:
